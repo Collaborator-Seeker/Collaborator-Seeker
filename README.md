@@ -1,4 +1,4 @@
-# 🌟 Exciting Opportunity for Everyone in the USA! 🌟
+# 💵🌟 Exciting Opportunity for Everyone in the USA! 🌟💵
 
 Hi there! 👋
 
